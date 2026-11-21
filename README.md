@@ -1,2 +1,6 @@
 # Nurmuhammad
-mening mening birinchi sahifam 
+Niyazimbetov
+##A+ 
+**me**
+- Qanday yordam berolamn 
+1. 69-69
