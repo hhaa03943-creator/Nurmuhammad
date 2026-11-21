@@ -1,5 +1,4 @@
 # Nurmuhammad
-Niyazimbetov
 ##A+ 
 **me**
 - Qanday yordam berolamn 
