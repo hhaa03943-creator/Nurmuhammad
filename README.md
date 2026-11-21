@@ -2,4 +2,4 @@
 ##A+ 
 **me**
 - Qanday yordam berolamn 
-1. 69-69
+1. 012.096
